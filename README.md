@@ -15,6 +15,7 @@ will update soon
 
 **interests:**
 - combat initiation
+- construction
 - blocktales
 - dummies vs noobs
 - die of death
