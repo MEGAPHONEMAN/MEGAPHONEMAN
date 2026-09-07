@@ -15,15 +15,13 @@ will update soon
 
 **interests:**
 - combat initiation
-- construction
+- HELLMET
 - blocktales
 - dummies vs noobs
-- die of death
-- more roblox stuff 
 
 **do not interact:**
 - proshippers/darkshippers
 - weird people in general
 - basic dni criteria
 
-cya zawg!! hope you and i can be great friends!!
+SIGN ATA !!!!!
